@@ -1,1 +1,1 @@
-# TIPE-VOKAL-SKRIPSI-
+Semangat rek
